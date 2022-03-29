@@ -1,1 +1,1 @@
-# ddmsh.github.io
+# Diyorbek Rustamjonov
